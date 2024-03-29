@@ -1,0 +1,9 @@
+- 👋 Hi, I’m @chillyischeck
+- 👀 I’m interested in games
+- 🌱 I’m currently learning how code
+- 💞️ I’m looking to collaborate on github and micrsoft
+- 📫 How to reach me my email is chilyheart@outlook.com
+- 😄 Pronouns: he/him/gamer
+- ⚡ Fun fact: i used xbox to do this
+- I will think about doing this on pc soon!😄
+- buh bye fam
